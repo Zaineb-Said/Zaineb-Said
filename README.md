@@ -1,0 +1,7 @@
+-👋 Hi, I’m @Zaineb-Said  
+- 👀 I’m interested in geospatial technologies, urban planning, and sustainable development.  
+- 🌱 I’m currently learning advanced GIS tools, remote sensing techniques, and machine learning for spatial analysis.  
+- 💞️ I’m looking to collaborate on projects related to urban development, climate resilience, and innovative geospatial solutions.  
+- 📫 How to reach me: [LinkedIn]([https://www.linkedin.com/in/zaineb-said-3506601ba/]) | Email: saidzayneb1@gmail.com 
+- 😄 Pronouns: She/Her  
+- ⚡ Fun fact: I’m passionate about using maps and data to tell stories that inspire action and change!  
